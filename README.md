@@ -18,7 +18,7 @@ building software, learning continuously, and documenting my journey one project
 
 ### projects
 
-coming soon.
+currently building.
 
 
 ### let's connect
